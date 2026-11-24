@@ -6,7 +6,7 @@ A: He only has one partner and that partner is his best friend "Darius1378910"
 3. Is he famous?
 A: No, he is not famous.
 4. When did he collaborate with his partners?
-A: imnotexploi4 barely collaborate with his partnet.
+A: imnotexploi4 barely collaborate with his partner.
 5. When did he became famous in TikTok?
 A: He did getting famous in tiktok and getting about Tool Assisted Speedrun. (500 followers per month, i dont know).
 6. Is he getting NSFW Arts?
@@ -19,3 +19,5 @@ A: He didn't, He need more times for his college.
 A: Yes, he has 1 Verified Adult account (rebluxieun), His main (imnotexploi4) and more (i think).
 10. Is he getting famous now?
 A: No. Without him, he is not going to be famous.
+# Q&A
+- Not here.
